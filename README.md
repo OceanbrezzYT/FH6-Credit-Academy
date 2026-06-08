@@ -21,3 +21,6 @@ $20 — 60 minutes + personalized plan
 
 ## Contact
 Discord: tearyx_
+
+### SERVER COMING SOON
+server info - N/A for now....
