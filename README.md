@@ -1,2 +1,24 @@
 # FH6-Credit-Academy
-This is my personal coaching page i will be teaching people 1 to 1 on how to make money and credits fast without using expliots etc. the first coaching is free and others will be paid.
+FH6 Credits Coach
+
+Make Credits Faster. Unlock More Cars.
+
+✓ Credit-making strategies
+✓ Auction House tips
+✓ Festival Playlist guidance
+✓ 1-on-1 coaching
+
+Packages:
+first coaching is free!
+
+beginner - $5
+30-minute coaching session
+
+Pro - $10
+60-minute coaching session
+
+VIP - $20
+60-minute session + personalized plan
+
+Book on Discord:
+tearyx_
