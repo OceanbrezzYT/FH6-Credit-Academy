@@ -1,24 +1,23 @@
-# FH6-Credit-Academy
-FH6 Credits Coach
+# FH6 Credit Academy
 
-Earn Credits Faster. Unlock More Cars.
+## What You'll Learn
+- Credit-making strategies
+- Auction House tips
+- Festival Playlist guidance
+- 1-on-1 coaching
 
-✓ Credit-making strategies
-✓ Auction House tips
-✓ Festival Playlist guidance
-✓ 1-on-1 coaching
+## Pricing
+### Free Trial
+15-minute introduction session
 
-Packages:
-first coaching is free! 15-minute
+### Beginner
+$5 — 30 minutes
 
-beginner - $5
-30-minute coaching session
+### Pro
+$10 — 60 minutes
 
-Pro - $10
-60-minute coaching session
+### VIP
+$20 — 60 minutes + personalized plan
 
-VIP - $20
-60-minute session + personalized plan
-
-Book on Discord:
-tearyx_
+## Contact
+Discord: tearyx_
