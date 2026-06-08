@@ -1,7 +1,7 @@
 # FH6-Credit-Academy
 FH6 Credits Coach
 
-Make Credits Faster. Unlock More Cars.
+Earn Credits Faster. Unlock More Cars.
 
 ✓ Credit-making strategies
 ✓ Auction House tips
