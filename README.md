@@ -9,7 +9,7 @@ Make Credits Faster. Unlock More Cars.
 ✓ 1-on-1 coaching
 
 Packages:
-first coaching is free!
+first coaching is free! 15-minute
 
 beginner - $5
 30-minute coaching session
